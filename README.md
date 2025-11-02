@@ -1,0 +1,1 @@
+# QCF-F25-Technical-Indicator-Machine-Model
